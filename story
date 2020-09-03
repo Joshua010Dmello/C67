@@ -1,0 +1,2 @@
+**story**
+Once upon a time, in a forest,there lived a monkey who resided on a jamun tree, which was on a bank of a river.In the same forest, there lived a crocodile and his wife. The monkey wanted to make a cloth for himself using the crocodile skin.He slowly started trying t befriends the crocodile by feeding him the berries. The berrie were not delicious and the crocodile liked it.after sometime the monkey started posioning the berries
